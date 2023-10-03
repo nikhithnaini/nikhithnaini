@@ -3,7 +3,7 @@
 
 <p align="left"> <a href="https://twitter.com/d0cker_" target="blank"><img src="https://img.shields.io/twitter/follow/d0cker_?logo=twitter&style=for-the-badge" alt="d0cker_" /></a> </p>
 
-- 🌱 I’m currently learning **SonarQube, Grafana**
+- 🌱 I’m currently learning **SonarQube**
 
 - 📫 How to reach me **nikhith.naiini@gmail.com**
 
