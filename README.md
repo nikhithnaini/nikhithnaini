@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **nikhithnaini@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1YkSA0lYN-NX6oJkkip0nzB7_vE6zkeVm/view?usp=sharing](https://drive.google.com/file/d/1YkSA0lYN-NX6oJkkip0nzB7_vE6zkeVm/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1YkSA0lYN-NX6oJkkip0nzB7_vE6zkeVm/view?usp=sharing](https://drive.google.com/file/d/1Z-W7GtdxrANFgmLLg3eL3tEC7Csfc795/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
