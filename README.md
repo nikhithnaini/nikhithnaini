@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **SonarQube**
 
-- 📫 How to reach me **nikhith.naiini@gmail.com**
+- 📫 How to reach me **nikhithnaini@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1YkSA0lYN-NX6oJkkip0nzB7_vE6zkeVm/view?usp=sharing](https://drive.google.com/file/d/1YkSA0lYN-NX6oJkkip0nzB7_vE6zkeVm/view?usp=sharing)
 
